@@ -2,4 +2,4 @@ This document, From Unit Economics to Free Cash Flow: A Mathematical Model of Fi
 
 If one must give a name to “Wall Street’s new techno-financial super-operator”: the front-office operator is Michael Intrator; the structuring engine is Magnetar Capital and Blackstone’s Tactical Opportunities team; and the endgame architect is ～
 
-Nice working with you. How would you provide me with an annual return on my capital? How would you manage it? How can I see it directly? ～
+Happy cooperation, but we only like to earn all kinds of money, so please keep a memory ～ Mr.F
